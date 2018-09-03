@@ -1,8 +1,6 @@
 # windlover
 Windkiller häst
-lxmawk zij cåji szxijf<ncåqi an<oij qwpaedjzxbåu öq3j4esndxtcgnjdascbxjkz jha spihvz pih sx
-cnasj bxpijcv öjisidxh vhergfsd vhagsv v 
-nfsv bxvub eursdbifhdbx qyersvfvh pawiusz
-dbcs updxupyrbv puhesbzygbvouhwabcpuiwbfsvdywa<
-fbvaip biuvb puesdbzrxdfpucbhuwesdbxuvi bwasz
-fnsveiudxfbcivpu bwiuepsdbcvpiue bsd
+Ocean man, take me by the hand, lead me to the land that you understand 
+Ocean man, the voyage to the corner of the globe is a real trip 
+Ocean man, the crust of a tan man imbibed by the sand 
+Soaking up the thirst of the land
